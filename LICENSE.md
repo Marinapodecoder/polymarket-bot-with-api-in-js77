@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with premium bot for Polymarket - slippage-control and take-profit-orders, the #1 bot. Includes slippage-control and take-profit-orders for a
 
 
 
